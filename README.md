@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Shawn!
+# 👋 Hi, I'm Shaonan!
 
 🎯 Treasury Analyst at Adobe | Aspiring Data Scientist  
 🎓 M.S. in Business Analytics | Background in Equity Research & FX Ops  
